@@ -1,5 +1,4 @@
-##
-
-**before you follow** : im slow, sometimes i cant tell when ur srs or joking, im kindof sensitive, i make alot of typos
-
-**dont follow if** : ur a weirdo, if u make rape jokes, u sexualize irl ppl, overly mean to people for no reason
+## 
+<p align="center">
+  <img width="7000" height="200" src="https://github.com/user-attachments/assets/21c72148-3b78-4226-b8ce-9b0945b0d438">
+</p>
