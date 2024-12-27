@@ -1,4 +1,4 @@
 ## 
 <p align="center">
-  <img width="7000" height="300" src="https://cdn.discordapp.com/attachments/1271814445751996419/1322169066856644628/image.png?ex=676fe566&is=676e93e6&hm=f305775c678971a306e7fd3fa0c403a960aa963f0a521c625c1799a86b4a3397&">
+  <img width="7000" height="260" src="https://cdn.discordapp.com/attachments/1271814445751996419/1322170069123600476/image.png?ex=676fe655&is=676e94d5&hm=1d086b077c5061ad3ec960fd8e94891c78e3f49c123c19d895d3076c3e91b2b3&">
 </p>
