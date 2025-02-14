@@ -5,6 +5,3 @@
 ‎ 
 ‎ https://copluh.straw.page
 ‎ 
-‎ ‎ 
-‎ 
-</p>
